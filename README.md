@@ -1,3 +1,3 @@
 ### Hi there 👋
 
-![coding](https://github.com/GassinDev/GassinDev/assets/105039478/8cb48a0e-45ce-4d20-85da-40a071306475)
+![giphy](https://github.com/GassinDev/GassinDev/assets/105039478/50f8d11c-2d3c-45f9-b629-8bcf7e8541ee)
