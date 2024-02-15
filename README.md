@@ -2,7 +2,7 @@
 
 ## ¡Hola buenas! 👋
 
-### 🌀 Soy GassinDev, Desarrollador de Aplicaciones Web🔨, además de gustarme por hobbie el diseño gráfico ✏️ 
+### 🌀 Soy GassinDev, Desarrollador de Aplicaciones Web🔨 en proceso, además de gustarme por hobbie el diseño gráfico ✏️ 
 
 </center>
 
